@@ -1,4 +1,4 @@
-# 1. The oldest business in the world
+# The oldest business in the world
 
 An important part of business is planning for the future and ensuring that the company survives changing market conditions. Some businesses do this really well and last for hundreds of years.
 
